@@ -1,1 +1,1 @@
-# Asignaci-nes-Programaci-n-I-Grupo-25-UAPA
+# Asignaciónes | Programación I | Grupo #25 | UAPA
